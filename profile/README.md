@@ -4,7 +4,7 @@
 
 👉👉 Click to play [Sprunki Phase 7 New Definitive](https://sprunkly.org/game/sprunki-phase-7-definitive-new-version)
 
-👉👉 Click to play [Sprunki Phase 5 New Definitive](https://sprunkly.org/game/sprunki-phase-6-new-version)
+👉👉 Click to play [Sprunki Phase 5 New Definitive](https://sprunkly.org/game/sprunki-phase-5-new-version)
 
 👉👉 Click to play [Sprunki Phase 6 New Definitive](https://sprunkly.org/game/sprunki-phase-6-new-version)
 
